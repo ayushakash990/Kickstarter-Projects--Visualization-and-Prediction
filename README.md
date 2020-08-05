@@ -1,1 +1,0 @@
-# -Kickstarter-Projects---Visualization-and-Prediction
